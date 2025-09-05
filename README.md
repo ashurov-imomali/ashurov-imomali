@@ -49,7 +49,7 @@
 ### 📫 Контакты
 - ✉️ **Email**: [dreamer.ashurov@gmail.com](mailto:dreamer.ashurov@gmail.com)
 - 📱 **Telegram**: [@dreamer_ashurov](https://t.me/dreamer_ashurov)
-- 🏢 **Резюме**: [Google Диск PDF](https://drive.google.com/file/d/1G8-KSeHviYnWMDUWv4L0fhK_ilsyFDIY/view?usp=sharing)
+- 🏢 **Резюме**: [Google Диск PDF](https://drive.google.com/file/d/1c__gbWwUTX3zPzsVIhlAXqDGufBnEUWl/view?usp=sharing)
 
 ---
 
